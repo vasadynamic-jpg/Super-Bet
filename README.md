@@ -1,2 +1,2 @@
 # Super-Bet
-online kazino
+online cazino
